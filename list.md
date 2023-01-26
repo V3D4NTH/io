@@ -3,8 +3,9 @@ A few things I like:
 --------------------------------------------------------------------------------
 1) Comics (Marvel and DC. Not manga and stuff)
 2) Football (Huga Barca fan!)
-3) MMA
-4) Animated cartoons that seem surface-level that I can over analyse
+3) Pro Wrestling
+4) MMA
+5) Animated cartoons that seem surface-level that I can over analyse
 - Beavis & Butthead
 - Family Guy
 - King of the Hill
@@ -18,8 +19,9 @@ A few things I like:
 - Nirvana
 - Phoebe Bridgers
 - Daft Punk
+- Gorillaz
 - The Beatles
 - Black Sabbath
-8) Masala Dosa
-9) Tiramisu
+7) Masala Dosa
+8) Tiramisu
 ---------------------------------------------------------------------------------

@@ -1,2 +1,2 @@
-# i-o-assignments
-Assignments from PESU I/O Course on Linux.
+# I/O
+Assignments from the Slot-13 PESU I/O Course on Linux.
